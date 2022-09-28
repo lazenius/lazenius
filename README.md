@@ -1,4 +1,4 @@
-lazenius is nazuni
+@lazenius : I love Codes.. of the Guitar and programs.
 ===
 
 - 👋 Hi, I’m @lazenius
