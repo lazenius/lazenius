@@ -1,4 +1,4 @@
-@lazenius : I love Codes.. of the Guitar and programs.
+@lazenius : I love Codes.. and Chords.
 ===
 
 - 👋 Hi, I’m @lazenius
